@@ -11,4 +11,5 @@
 ![image](https://user-images.githubusercontent.com/66871022/161450462-3499d9ab-50f1-49d3-a1a3-d7bd0dff2fd4.png)
 
 HypeR BeasT Discord Adresimiz = https://discord.gg/cshyperbeast
+
 CSGO-Turkiye Discord Adresimiz = https://discord.gg/zfKTDrJHar
